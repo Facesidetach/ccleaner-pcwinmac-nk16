@@ -1,4 +1,4 @@
-# 
+# Officiel CCleaner extensions pour Mac OS | Professionnel CCleaner extensions pour PC Windows. Avec gestionnaire de démarrage et intégration cloud — optimisé pour des performances maximales sur chaque plateforme.
 
 
 
